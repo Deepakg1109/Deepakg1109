@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a B.Tech CSE Graduate, want to start my journey by solving real life problems. and first looking for job<br>
+I'm a B.Tech CSE Graduate, want to start my journey and solving real life problems.<br>
 
 
 ## 🌐 Socials:
